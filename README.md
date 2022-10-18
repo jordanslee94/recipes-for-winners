@@ -1,0 +1,1 @@
+This is a joke website for practicing my skills
